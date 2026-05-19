@@ -13,3 +13,6 @@ https://spielverlagerung.com/2014/12/25/juego-de-posicion-under-pep-guardiola/
 https://wp.ufpel.edu.br/empauta/guardiola-o-montador-de-campeoes-do-mundo/
 https://medium.com/@andreandradejr11/conceitos-de-jogo-de-pep-guardiola-no-m-city-cd977dcf6b29
 https://medium.com/@andreandradejr11/explicando-o-jogo-de-posi%C3%A7%C3%A3o-b07fd40838ae
+[Uploading Anatomia_do_Jogo_de_Posição.pdf…]()
+
+
